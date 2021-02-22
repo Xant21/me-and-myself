@@ -14,4 +14,4 @@ Si llegas a investigar que es "El Universo" Sabrías que se llama a universo a t
 Y aquí es donde te digo a ti, ser que entra a mi universo. ¡Bienvenido a otro Universo! 
 
 
-☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜
+☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜꒰ •̤ ▿ •̤* ꒱
