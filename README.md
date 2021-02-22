@@ -1,5 +1,5 @@
 # me-and-myself
-☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★
+☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜
 
 ¿Qué es el Universo? Si llegas a investigar que es "El Universo" Sabrías que se llama a universo a todo lo que se puede tocar, sentir, percibir, medir o detectar. Abarca los cosas vivas, los planetas, las estrellas, las galaxias, las nubes de polvo, la luz e incluso el tiempo.
 
@@ -7,4 +7,4 @@
 
 Y aquí es donde te digo a ti, ser que entra a mi universo. ¡Bienvenido a otro Universo! 
 
-☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★
+☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜★☆゜・。。・゜゜・。。・゜
